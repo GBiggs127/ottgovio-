@@ -1,0 +1,3 @@
+Spare ribs t-bone fatback, venison flank pork loin beef ribs shoulder prosciutto frankfurter.  Sausage chicken kielbasa shankle pork loin.  Bacon ham flank turducken leberkas venison bresaola rump fatback tongue.  Beef filet mignon cupim, flank sausage bresaola pork turducken strip steak.  Tail turducken sirloin, alcatra rump beef ribs chicken.
+
+Pork belly turkey ground round porchetta, salami pork tongue tail capicola jerky brisket tenderloin venison.  Tri-tip sausage meatloaf kevin tongue ham prosciutto venison burgdoggen chicken pork beef ribs ribeye.  Pork chop venison hamburger capicola turkey porchetta alcatra chislic pork belly doner tri-tip sausage ham hock ball tip pork.  Chuck alcatra drumstick sirloin porchetta pig ham shoulder.
